@@ -5,7 +5,12 @@ Sam falls down
 Sam tries again
 Sam finally reaches the microwave
 Sam realizes that it is not plugged in
-Sam Sam goes back down to plug it in
+Sam goes back down to plug it in
 Same tries to climb the tree and falls again
 Sam finally climbs the tree
-Same microwaves the food
+Sam accidentally breaks the microwave
+Sam goes to another tree
+Same climbs the tree
+Sam microwaves the food
+
+
