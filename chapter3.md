@@ -7,6 +7,9 @@ Sam finally reaches the microwave
 Sam realizes that it is not plugged in
 Sam goes back down to plug it in
 Same tries to climb the tree and falls again
+Sam Sam goes back down to plug it in
+Sam tries to climb the tree and falls again
+Sam is feeling very discouraged
 Sam finally climbs the tree
 Sam accidentally breaks the microwave
 Sam goes to another tree
